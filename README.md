@@ -1,2 +1,0 @@
-# Alhid
-Organisasi Kreativitas
